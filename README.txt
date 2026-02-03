@@ -1,5 +1,5 @@
 🎂 HAPPY BIRTHDAY CODE PROJECT 🎂
-Created by: Irfan Dev Journey
+Created by: Bevan
 
 THANK YOU for downloading! 
 Here is how to use this code:
@@ -27,6 +27,6 @@ https://hostinger.in?REFERRALCODE=I99ITISIRS9J
 
 Using a custom link is the best way to surprise her! ❤️
 ------------------------------------------------
-Follow me on Instagram for more codes: @fromzero.dev
+Follow me on Instagram for more codes: @invali_bzero
 Subscribe on YouTube: IrfanDevJourney
 ------------------------------------------------
